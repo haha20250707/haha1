@@ -11,4 +11,4 @@
 
 如果你想免费观看日本AV免费影片，这些平台为你提供了全面的选择。无论是最新的热门影片，还是经典作品，你都能轻松找到。在这些平台上，影片不仅按照类型和演员进行分类，还可以根据用户评分进行排序，让你快速挑选最受欢迎的影片。网站还支持高清视频播放，确保画质清晰，播放流畅，让你享受无卡顿的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/haha20250707/haha1 ）</span>
